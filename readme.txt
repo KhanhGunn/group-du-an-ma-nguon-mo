@@ -1,1 +1,1 @@
-Nguyễn Thái Dương - 
+Nguyễn Thái Dương - leader
