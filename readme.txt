@@ -1,2 +1,2 @@
 Nguyễn Thái Dương - leader
-Trần Anh Tín - Contribute
+Lê Việt Hà
